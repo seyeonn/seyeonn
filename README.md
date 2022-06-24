@@ -17,7 +17,7 @@
   
 🎓 I majored in Department of Software Engineering
 
-💻 SSAFY, 6th (2021.07 ~ )  
+💻 SSAFY, 6th (2021.07 ~ 2022.06)  
   
  
   #
